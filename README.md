@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hyuu0505
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...ゲームを創る
 - 🌱 I’m currently learning ...編集
 - 💞️ I’m looking to collaborate on ...編集
 - 📫 How to reach me ...
